@@ -21,7 +21,7 @@
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;许静媛默不作声地回到琴凳上去，她刚弹了一小段，我就喊停：“这首不行。”  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;她弹的是《罗密欧与朱丽叶》里的《Dance of the Knights》。她说：“怎么不行？这不就是跳舞的曲子吗？”  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;我说我又不是去决斗的，换一个换一个。她问我换成肖邦行不行，喜欢哪首圆舞曲。我说也不行，沙龙味太重，不适合现在的心情。  
-最后她弹了老肖的《Jazz Suite No.2》里的第二圆舞曲。我左手放在一侧，右手搭起——好像真的有人在我对面陪我跳似的。我一个人在客厅里转了不知道多少圈，怀里始终空空如也。  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;最后她弹了老肖的《Jazz Suite No.2》里的第二圆舞曲。我左手放在一侧，右手搭起——好像真的有人在我对面陪我跳似的。我一个人在客厅里转了不知道多少圈，怀里始终空空如也。  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;这支舞跳完的时候，我瘫坐在地上，失恋后第一次放声大哭。恍惚间，我看见她慌张朝我跑来。她腿真长，走起路来真好看。她今天穿着的那条阔腿裤到小腿中间，露出纤细的脚踝。她向来很瘦，我们都五十五公斤，但我一六五，她一七五，足足比我高十公分。  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;她说我醉了，我说我没有，还可以再喝一瓶。她不说话，只是拉着我起来，要扶我回房去。我默不作声，让她给我掖上被子。我叫她：“许静媛……”  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;她叹气：“焉南，你要洗澡吗？”  
