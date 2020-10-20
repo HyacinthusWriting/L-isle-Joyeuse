@@ -1,3 +1,4 @@
+## 4
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;我给张鸣鹤发微信：我这周末要过来。  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;他问我怎么突然想过来，我没解释，只是让他来接我。  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;“焉南，要不要点个你最爱的蒜泥白肉？还有，你怎么突然想到要过来，刚才在车上问你，你都不说话，是不是心情不好？”  
