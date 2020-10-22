@@ -4,4 +4,4 @@
 ## 作者声明
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;作者本人并不是software engineer，也不是宾夕法尼亚大学工学院的学生，写作的时候也并未在湾区生活过。如果出现了事实错漏，欢迎大家提出意见并修正。小说的人物和剧情均无原型，创作灵感来于作者本人对生活的观察和体验，以及道听途说的他人的故事。所以请认识作者本人的朋友，不要借作品对作者的生活和经历进行过度解读，这并不是这次创作的本意。  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;最后，希望大家在阅读之前，先欣赏这部小说标题所提到的曲目，德彪西的钢琴作品[《欢乐岛》](https://www.youtube.com/watch?v=ZQSmhinXkDg)。  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  全文约5万字，预计阅读时间为1-1.5小时。
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全文约5万字，预计阅读时间为1-1.5小时。
