@@ -66,8 +66,8 @@
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;我笑道：“随便选的，你太厉害了，只好选一些你不熟悉的来考你。”  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;她说：“真的写得不行。你应该多听听老肖那一套洗洗耳朵。不过谁让我喜欢你呢，你偶尔品味堪忧我也可以忍受……就像你挑男人的眼光。下一次，你可要找个好点的对象。”  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;“那你说，我该找个什么样的呢？”  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;“焉南，你很聪明的。你这是揣着聪明装糊涂。”
- “门德尔松和你多大仇？要这样黑他。”  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;“焉南，你很聪明的。你这是揣着聪明装糊涂。”  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;“门德尔松和你多大仇？要这样黑他。”  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;我叹气：“实在喜欢不来啊，可能只有靖椿那样的人才能和他有共鸣吧。”  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;四月活动众多，她俩有天问我，系里有个party，问我去不去。我说既然你们都去，我也去凑凑热闹。与张鸣鹤分手后，社交活动陡然减少很多。这是个好机会。  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;那天，许静媛穿了一条黑色的无袖针织长裙。我看着她，一群女孩子凑上去跟她说话，偶尔也有男孩子跟她打招呼。她那样好看。平时在学校，只穿牛仔裤配白衬衫。再随意些，罩上一件T恤也可度日。夏天穿阔腿裤或者连体裤比较多。她很少穿裙子，今日却穿了。我看得痴痴的，有女孩过来同我说话：“你认识许静媛吗？我刚才见她拉着你的手，你是她女朋友吗？”  
